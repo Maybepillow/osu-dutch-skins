@@ -12,3 +12,6 @@ https://github.com/ryancranie/skinhub/blob/tyfh/player/luciano/luciano.md
 
 # senkuus
 ponytail 2019 Download: https://drive.google.com/file/d/1DjhyGq9NE-nrB_qdn7bo6lxpTxHZYnZs/view
+
+# cozyin
+tekkito2 (cozyin edit) Donwload: https://cozyin.s-ul.eu/YNJAjePV
